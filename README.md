@@ -1,0 +1,2 @@
+# vicky
+pertama kali buat
